@@ -1,0 +1,2 @@
+# LoneWolf
+It's not easy going it alone but if you keep going, stay true to yourself it will be worth it in the end because the hardest walk you can make is the walk you make alone that makes you the strongest that is the walk that builds your character the most.To all of you fighting battles alone and going against the grain battling the naysayers, stay strong and keep going.This walk is hard but the hardest walks lead to the greatest destinations, the toughest climbs always lead to the best views.It will be worth it in end.
